@@ -1,2 +1,2 @@
 # hyperblog
-You are beatiful
+La vida es bella, me amo.
